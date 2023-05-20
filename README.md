@@ -1,11 +1,14 @@
 # Vue.js-tutorial-hell
-yahoo~! How are ya? I hope you guys doing well, me? Nah I don't know how to feel. My feelings are mixed up. sad, love, hate, and mad!!!  
+yahoo~! How are ya? I hope you guys doing well, me?  
+Nah I don't know how to feel.  
+My feelings are mixed up.  
+sad, love, hate, and mad!!!  
 
 ![Pain](https://media.tenor.com/yM1cCQGkVTgAAAAM/k-on-yui-hirasawa.gif)
 
-UGHHHH I HATE EVERYTHING!!!!
-But it's ok I've been working on my self esteem.
-I don't want to hurt my lil heart anymore :(
+UGHHHH I HATE EVERYTHING!!!!  
+But it's ok I've been working on my self esteem.  
+I don't want to hurt my lil heart anymore :(  
 I just wanna be happy without any attachment to someone or anyone.
 
 anyways I have 3 coping mechanism:
